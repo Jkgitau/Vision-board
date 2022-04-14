@@ -1,11 +1,23 @@
 ### This is John Gitau's Vision board for one and five years vision
 *Provers 16:3 NLT “Commit your actions to the lord , and your plans will succeed*
 
-### Career development
-![career]("C:\Users\Hp\Desktop\Ardor papers\pic.jpg")
+#### Career development
+![career!]("C:\Users\Hp\Desktop\Ardor papers\pic.jpg")
 - Start a PhD program in a year's time from now in a European country.
 - Apply atleast one PhD program every two months
 - Have atleast 3 scientific publications in 2022
 - Attend atleast 10 seminars and conferences
 - Attend atleast one international conference in 2022
--  
+
+#### Physical development
+- Consistently attend gym every weekday morning before reporting to my job
+- Eat healthly everyday
+- sleep adequately (atleast 6 hours); with definate sleeping time
+- Go out every Sunday afternoon to relax 
+
+#### Financial development
+- Start another outlet of Kaniwa enterprises in a year's time
+- Have atleast 4 streams of income by the end of 2022
+- Savings to be atleast 6 figures by the end of 2023
+
+
