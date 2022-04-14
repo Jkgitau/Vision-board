@@ -2,7 +2,7 @@
 *Provers 16:3 NLT “Commit your actions to the lord , and your plans will succeed*
 
 #### Career development  
-![career](https://online.stanford.edu/sites/default/files/styles/figure_default/public/2018-03/biomedicalinformatics_translational-bioinformatics_biomedin217.jpg?itok=_WgRE7Ei)
+![three](https://user-images.githubusercontent.com/48380120/163463880-9adc9d2c-88ba-47b9-aa07-a8069573d18a.jpg)
 - Start a PhD program in a year's time from now in a European country.
 - Apply atleast one PhD program every two months
 - Have atleast 3 scientific publications in 2022
