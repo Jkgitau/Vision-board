@@ -8,4 +8,4 @@
 - Have atleast 3 scientific publications in 2022
 - Attend atleast 10 seminars and conferences
 - Attend atleast one international conference in 2022
-- 
+-  
