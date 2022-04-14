@@ -9,7 +9,8 @@
 - Attend atleast 10 seminars and conferences
 - Attend atleast one international conference in 2022
 
-#### Physical development
+#### Physical development  
+
 - Consistently attend gym every weekday morning before reporting to my job
 - Eat healthly everyday following a meal plan schedule
 - sleep adequately (atleast 6 hours); with definate sleeping time
