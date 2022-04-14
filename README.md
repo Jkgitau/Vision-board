@@ -11,7 +11,7 @@
 
 #### Physical development
 - Consistently attend gym every weekday morning before reporting to my job
-- Eat healthly everyday
+- Eat healthly everyday following a meal plan schedule
 - sleep adequately (atleast 6 hours); with definate sleeping time
 - Go out every Sunday afternoon to relax 
 
