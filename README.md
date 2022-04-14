@@ -17,7 +17,7 @@
 - Go out every Sunday afternoon to relax 
 
 #### Financial development
-
+![kaniwa image](https://user-images.githubusercontent.com/48380120/163466433-6cf43fe6-51b9-4af2-8a8c-7b2fc0112a54.jpeg)
 - Start another outlet of Kaniwa enterprises in a year's time
 - Have atleast 4 streams of income by the end of 2022
 - Savings to be atleast 6 figures by the end of 2023
