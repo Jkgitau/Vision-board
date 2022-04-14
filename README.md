@@ -17,10 +17,15 @@
 - Go out every Sunday afternoon to relax 
 
 #### Financial development
+
 - Start another outlet of Kaniwa enterprises in a year's time
 - Have atleast 4 streams of income by the end of 2022
 - Savings to be atleast 6 figures by the end of 2023
 
-#### Relationship
+#### Relationships
+![hh](https://user-images.githubusercontent.com/48380120/163466027-a4546e4a-fc3d-45b8-8541-01b054bb4a55.jpg)
+- Be engaged by the end of 2023
+- Have a first born before the end of 2024
+- 
 
 
