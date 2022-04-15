@@ -44,5 +44,9 @@ Action plan;
 2. Allow God to be at the centre of my plans to guide my steps
 3. Pray for everything I do to be guided as he best knows my life path
 
+## Wealth and Investments
+- Be a home owner in Nairobi before 2030  A sketch of my dream house (to be updated) is shown below  
+- Have an established family business (Kaniwa enterprises) that includes importation of computer products and services by 2030
+- 
 
 
