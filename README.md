@@ -1,10 +1,8 @@
-![IMG20220412101625](https://user-images.githubusercontent.com/48380120/163536166-409dc943-41e3-419c-ab3b-fe8eeb1f74af.jpg)
-
 Theme verse as I Put down my plans  
 *Provers 16:3 NLT “Commit your actions to the lord , and your plans will succeed*
 
 ## Career development  
-![three](https://user-images.githubusercontent.com/48380120/163463880-9adc9d2c-88ba-47b9-aa07-a8069573d18a.jpg)
+![three](https://user-images.githubusercontent.com/48380120/163463880-9adc9d2c-88ba-47b9-aa07-a8069573d18a.jpg) ![IMG20220412101625](https://user-images.githubusercontent.com/48380120/163536166-409dc943-41e3-419c-ab3b-fe8eeb1f74af.jpg)
 - Start a PhD program in a year's time from now in a European country.
 - Apply atleast one PhD program every two months
 - Have atleast 3 scientific publications in 2022
