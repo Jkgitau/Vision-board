@@ -10,7 +10,7 @@ Theme verse as I Put down my plans
 - Attend atleast one international conference in 2022
 
 ### Physical development  
-![tt](https://user-images.githubusercontent.com/48380120/163465426-0a776211-5ee9-45c4-971d-eacd49e15783.jpg)
+![oo](https://user-images.githubusercontent.com/48380120/163533218-981f1a03-8421-4b55-8e80-6accfb52c5c8.jpeg)
 - Consistently attend gym every weekday morning before reporting to my job
 - Eat healthly everyday following a meal plan schedule
 - sleep adequately (atleast 6 hours); with definate sleeping time
