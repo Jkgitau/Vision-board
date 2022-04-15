@@ -37,7 +37,7 @@ Theme verse as I Put down my plans
 - Marry by the end of 2024
 - Have a first born by the end of 2025
 - Go for a Honey Moon to Thailand or Seychelles for a week
-- Have an international family vacation to a south Amrican country before 2030
+- Have an international family vacation to a south Amrican country before 2030  
 Action plan;
 1. Be intentional with my interactions and place myself strategically
 2. Allow God to be at the centre of my plans to guide my steps
