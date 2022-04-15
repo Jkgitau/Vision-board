@@ -25,13 +25,6 @@ Theme verse as I Put down my plans
 - sleep adequately (atleast 6 hours); with definate sleeping time
 - Go out every Sunday afternoon to relax 
 
-## Financial development
-![kaniwa image](https://user-images.githubusercontent.com/48380120/163466433-6cf43fe6-51b9-4af2-8a8c-7b2fc0112a54.jpeg)
-- Start another outlet of Kaniwa enterprises in a year's time
-- Have atleast 4 streams of income by the end of 2023
-- Establish an online bioinformatics consultancy before finishing my PhD
-
-
 ## Relationship and marriage
 ![jj](https://user-images.githubusercontent.com/48380120/163531590-a3076b73-0a5d-4f78-ad0d-a486523aea7e.jpg)
 - Be engaged by the end of 2023
@@ -45,13 +38,20 @@ Action plan;
 3. Pray for everything I do to be guided as he best knows my life path
 
 ## Wealth and Investments
-- Be a home owner in Nairobi before 2030    
-A sketch of my dream house (to be updated) is shown below  
-![hou](https://user-images.githubusercontent.com/48380120/163540208-02c405bd-7259-4a06-853b-7cbaeb480d37.jpg)
+- Start another outlet of Kaniwa enterprises by the end of 2023  
 - Have an established family business (Kaniwa enterprises) that includes importation of computer products and services by 2030
-- Have my dream car (LandRover discovery 5) grey in color by 2032  
+![kaniwa image](https://user-images.githubusercontent.com/48380120/163466433-6cf43fe6-51b9-4af2-8a8c-7b2fc0112a54.jpeg)
+- Have atleast 4 streams of income by the end of 2023
+- Establish an online bioinformatics consultancy [BioinfoKE consultancy group] before completing my PhD  
+- Be a home owner in Nairobi before 2030    
+A sketch of my dream house (open to improvement) is shown below  
+
+![hou](https://user-images.githubusercontent.com/48380120/163540208-02c405bd-7259-4a06-853b-7cbaeb480d37.jpg)
+- Have my dream car (LandRover discovery 5) grey in color by 2035  
+  
  ![dream](https://user-images.githubusercontent.com/48380120/163542531-58f3b4cf-1360-4c26-8641-564f4093189c.jpg)
 - Get a family car (subaru XV) by 2027 white or black in color  
+  
 ![fam](https://user-images.githubusercontent.com/48380120/163542011-b29c7ff9-d7f4-4f2b-928f-37909a618013.jpg)
   
   
