@@ -23,7 +23,7 @@ Theme verse as I Put down my plans
 - Establish an online bioinformatics consultancy before finishing my PhD
 
 
-### Relationships
+### Relationship and marriage
 ![jj](https://user-images.githubusercontent.com/48380120/163531590-a3076b73-0a5d-4f78-ad0d-a486523aea7e.jpg)
 - Be engaged by the end of 2023
 - Marry by the end of 2024
