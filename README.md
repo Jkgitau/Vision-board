@@ -49,7 +49,12 @@ Action plan;
 A sketch of my dream house (to be updated) is shown below  
 ![hou](https://user-images.githubusercontent.com/48380120/163540208-02c405bd-7259-4a06-853b-7cbaeb480d37.jpg)
 - Have an established family business (Kaniwa enterprises) that includes importation of computer products and services by 2030
-- Have my dream car (LandRover discovery 5) by 2032 and business/family car (subaru XV) by 2027  
+- Have my dream car (LandRover discovery 5) grey in color by 2032  
+![fam](https://user-images.githubusercontent.com/48380120/163542011-b29c7ff9-d7f4-4f2b-928f-37909a618013.jpg)
+sercontent.com/48380120/163541975-76a13790-6d5a-4c73-8d4b-3c1ba2a3a2b3.jpg) 
+- Get a family car (subaru XV) by 2027 white or black in color  
+![fam](https://user-images.githubusercontent.com/48380120/163542011-b29c7ff9-d7f4-4f2b-928f-37909a618013.jpg)
+sercontent.com/48380120/163541975-76a13790-6d5a-4c73-8d4b-3c1ba2a3a2b3.jpg)  
   
 
 
