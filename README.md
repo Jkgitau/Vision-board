@@ -31,13 +31,13 @@ Theme verse as I Put down my plans
 - Marry by the end of 2024
 - Have a first born by the end of 2025
 - Go for a Honey Moon to Thailand or Seychelles for a week
-- Have an international family vacation to a south Amrican country before 2030  
+- Have an international family vacation to a south American country before 2030  
 Action plan;
 1. Be intentional with my interactions and place myself strategically
 2. Allow God to be at the centre of my plans to guide my steps
 3. Pray for everything I do to be guided as he best knows my life path
 
-## Wealth and Investments
+## Wealth accumulation and Investments
 - Start another outlet of Kaniwa enterprises by the end of 2023  
 - Have an established family business (Kaniwa enterprises) that includes importation of computer products and services by 2030
 ![kaniwa image](https://user-images.githubusercontent.com/48380120/163466433-6cf43fe6-51b9-4af2-8a8c-7b2fc0112a54.jpeg)
