@@ -43,7 +43,7 @@ Action plan;
 ![kaniwa image](https://user-images.githubusercontent.com/48380120/163466433-6cf43fe6-51b9-4af2-8a8c-7b2fc0112a54.jpeg)
 - Have atleast 4 streams of income by the end of 2023
 - Establish an online bioinformatics consultancy [BioinfoKE consultancy group] before completing my PhD  
-- Be a home owner in Nairobi before 2030    
+- Be a home owner in Nairobi before 2035    
 A sketch of my dream house (open to improvement) is shown below  
 
 ![hou](https://user-images.githubusercontent.com/48380120/163540208-02c405bd-7259-4a06-853b-7cbaeb480d37.jpg)
