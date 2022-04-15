@@ -11,7 +11,8 @@ Theme verse as I Put down my plans
 - Attend atleast one international conference in 2022
 -  Start a Post doctral degree before 2030
 
-## Spiritual development
+## Spiritual development  
+![sp](https://user-images.githubusercontent.com/48380120/163539211-1b428199-6a8b-4d97-b6e5-9e0a7a42e922.jpg)
 - Be intentional in seeking God; Seeking his kingdowm first before everything else [Mathew 6:33]
 - Read atleast one verse every day
 - Be consistent and active with LEMP fellowship
