@@ -1,3 +1,5 @@
+![IMG20220412101625](https://user-images.githubusercontent.com/48380120/163536166-409dc943-41e3-419c-ab3b-fe8eeb1f74af.jpg)
+
 Theme verse as I Put down my plans  
 *Provers 16:3 NLT “Commit your actions to the lord , and your plans will succeed*
 
