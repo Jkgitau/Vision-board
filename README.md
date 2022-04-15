@@ -18,7 +18,7 @@ Theme verse as I Put down my plans
 - Be consistent and active with LEMP fellowship
 - Be very proactive in youth leadership and activities at AllSaints Cathedral 
 
-## Physical development  
+## Physical/Personal development  
 ![oo](https://user-images.githubusercontent.com/48380120/163533218-981f1a03-8421-4b55-8e80-6accfb52c5c8.jpeg)
 - Consistently attend gym every weekday morning before reporting to my job
 - Eat healthly everyday following a meal plan schedule
