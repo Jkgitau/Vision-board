@@ -49,7 +49,8 @@ Action plan;
 A sketch of my dream house (to be updated) is shown below  
 ![hou](https://user-images.githubusercontent.com/48380120/163540208-02c405bd-7259-4a06-853b-7cbaeb480d37.jpg)
 - Have an established family business (Kaniwa enterprises) that includes importation of computer products and services by 2030
-- Have my dream and business cars by 2030  
+- Have my dream car (LandRover discovery 5) by 2032 and business/family car (subaru XV) by 2027  
+  
 
 
 
