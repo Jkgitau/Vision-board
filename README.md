@@ -9,7 +9,7 @@ Theme verse as I Put down my plans
 - Have atleast 3 scientific publications in 2022
 - Attend atleast 10 seminars and conferences
 - Attend atleast one international conference in 2022
--  Start a Post doctral degree before 2030
+-  Be a Posstdoctoral researcher before 2030
 
 ## Spiritual development  
 ![sp](https://user-images.githubusercontent.com/48380120/163539211-1b428199-6a8b-4d97-b6e5-9e0a7a42e922.jpg)
