@@ -21,6 +21,7 @@ Research and PhD work:
 8.	Visit 3 countries (One abroad) to present my findings and/or attend courses to bolster my academic pursuits.
 9.	Complete a mathematical modeling course every quarter. One should be epidemiological and Global Public Health.
 10.	Be active on social media, and other scientific forums. Let people know the work you are doing, and the results you are having so far. Don’t hide.
+11.	Jot down ideas on how I can monitize my expertise
   
 Personal Life and Self-development - Investment
 1.	Overcome P$M completely and have a WN in my life if possible though not a priority. Let God lead the way and guide my steps
