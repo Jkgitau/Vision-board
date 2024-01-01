@@ -13,13 +13,14 @@ In 2024, I want to focus on the following thematic areas:
 Research and PhD work:
 1.	Work towards my PhD objective one all the way to publication. I have to first complete a systematic Review and Meta-analyses, have it published in either nature or Lancet Journal. Also have Research objective one published in a high impact Journal. Always target either Nature or Lancet.
 2.	Ensure the collaboration with Kirabo results to two peer reviewed publications. These will be published in high impact journals but Nature and Lancet are not the target for these.
-3.	Write and apply to an Epidemiology/Modeling grant once every quarter – Collaborate with Dr. Ousmane, Abel Walekhwa etc.
-4.	Collaboratively work with CEMA-group and contribute to one paper/research work leading to publication in every quarter: Attend all Epi lab sessions, and present my work. 
-5.	Read one book every month and have a collection of a library at home. These books will mostly be on self-development and time management. Check out for these books way earlier and have a read list for every quarter.
-6.	Read two papers everyday (Mathematical modelling paper and Malaria biology paper) – Check the schedule to see the specific times on the timetable
-7.	Visit 3 countries (One abroad) to present my findings and/or attend courses to bolster my academic pursuits.
-8.	Complete a mathematical modeling course every quarter. One should be epidemiological and Global Public Health.
-9.	Be active on social media, and other scientific forums. Let people know the work you are doing, and the results you are having so far. Don’t hide.
+3.	Work towards having 10 publications in the pipeline for publication, either already published or manuscript drafted
+4.	Write and apply to an Epidemiology/Modeling grant once every quarter – Collaborate with Dr. Ousmane, Abel Walekhwa etc.
+5.	Collaboratively work with CEMA-group and contribute to one paper/research work leading to publication in every quarter: Attend all Epi lab sessions, and present my work. 
+6.	Read one book every month and have a collection of a library at home. These books will mostly be on self-development and time management. Check out for these books way earlier and have a read list for every quarter.
+7.	Read two papers everyday (Mathematical modelling paper and Malaria biology paper) – Check the schedule to see the specific times on the timetable
+8.	Visit 3 countries (One abroad) to present my findings and/or attend courses to bolster my academic pursuits.
+9.	Complete a mathematical modeling course every quarter. One should be epidemiological and Global Public Health.
+10.	Be active on social media, and other scientific forums. Let people know the work you are doing, and the results you are having so far. Don’t hide.
   
 Personal Life and Self-development - Investment
 1.	Overcome P$M completely and have a WN in my life if possible though not a priority. Let God lead the way and guide my steps
