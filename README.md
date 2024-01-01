@@ -1,3 +1,46 @@
+
+Things I want to achieve in 2024 by God’s Grace
+
+In 2024, I want to focus on the following thematic areas:
+1.	Research and PhD work
+2.	Investment
+3.	Spiritual life - Purpose
+
+Research and PhD work:
+1.	Work towards my PhD objective one all the way to publication. I have to first complete a systematic Review and Meta-analyses, have it published in either nature or Lancet Journal. Also have Research objective one published in a high impact Journal. Always target either Nature or Lancet.
+2.	Ensure the collaboration with Kirabo results to two peer reviewed publications. These will be published in high impact journals but Nature and Lancet are not the target for these.
+3.	Write and apply to an Epidemiology/Modeling grant once every quarter – Collaborate with Dr. Ousmane, Abel Walekhwa etc.
+4.	Collaboratively work with CEMA-group and contribute to one paper/research work leading to publication in every quarter: Attend all Epi lab sessions, and present my work. 
+5.	Read one book every month and have a collection of a library at home. These books will mostly be on self-development and time management. Check out for these books way earlier and have a read list for every quarter.
+6.	Read two papers everyday (Mathematical modelling paper and Malaria biology paper) – Check the schedule to see the specific times on the timetable
+7.	Visit 3 countries (One abroad) to present my findings and/or attend courses to bolster my academic pursuits.
+8.	Complete a mathematical modeling course every quarter. One should be epidemiological and Global Public Health.
+9.	Be active on social media, and other scientific forums. Let people know the work you are doing, and the results you are having so far. Don’t hide.
+  
+Personal Life and Self-development - Investment
+1.	Overcome P$M completely and have a WN in my life if possible though not a priority. Let God lead the way and guide my steps
+2.	Buy a car, Mazda CX3. Jose, Moses and I will go Mombasa to pick up the same on 21st October, 2024.- work closely with John Insurance as he’s truly a friend.
+3.	Have a valid driving license before getting the car. 
+4.	Be waking up at 4:00am every day and hit the gym. Having a healthy, strong, sexy body is something I will work towards.
+5.	Save atleast 1.0M shillings by the end of the year
+
+Renovate my parents’ home: 
+1.	Install a new toilet and all resources needed in the Wash room, safety is necessary for my ageing parents
+2.	 Paint the entire house and make it comfy
+3.	Install clothes cabinet in the two bedrooms and have more organization and better outlook.
+4.	Declutter as much as I can: Remove excessive seats and Cupboard
+5.	Install curtain Rails and have nice curtains on them
+
+Spiritual Life – Spiritual growth
+1.	Become a leader in church, attend all services and Keshas without fail and serve diligently in all capacities entrusted by God (ASC, LEMP, Cell groups). 
+2.	Pray every morning and read the bible atleast a chapter every day. Fast every Thursday without fail
+3.	Set aside two days every quarter for a spiritual retreat to reflect and take notes of where I am and where I am going. Make sure I am on 
+
+
+
+
+
+*************************************************************
 Theme verse as I Put down my plans  
 *Provers 16:3 NLT “Commit your actions to the lord , and your plans will succeed*
 
