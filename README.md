@@ -6,9 +6,9 @@ My year's theme is Jeremiah 32:27 Amplified Bible (AMP)
 “Behold, I am the LORD, the God of all flesh; is there anything too difficult for Me?”
 
 In 2024, I want to focus on the following thematic areas:
-1.	Research and PhD work
+**1.	Research and PhD work
 2.	Investment
-3.	Spiritual life - Purpose
+3.	Spiritual life - Purpose**
 
 Research and PhD work:
 1.	Work towards my PhD objective one all the way to publication. I have to first complete a systematic Review and Meta-analyses, have it published in either nature or Lancet Journal. Also have Research objective one published in a high impact Journal. Always target either Nature or Lancet.
